@@ -1,2 +1,0 @@
-# thanviry.github.io
-bday
